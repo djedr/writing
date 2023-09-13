@@ -1,6 +1,6 @@
 # will-o'-the-wisp
 
-it's almost as if reality itself is flexible, considering how much can we bend our interpretations of it and still fit; not sure; but certainly there is tremendous flexibility; sometimes it feels like even if you run out you can just make more of whatever it is that you need; just make it out of thin air; not even air; out of space; that itself can be expanded arbitrarily;
+it's almost as if reality itself is flexible, considering how much we can bend our interpretations of it and still fit; not sure; but certainly there is tremendous flexibility; sometimes it feels like even if you run out you can just make more of whatever it is that you need; just make it out of thin air; not even air; out of space; that itself can be expanded arbitrarily;
 
 supposedly everything is mostly empty space; supposedly?!
 
