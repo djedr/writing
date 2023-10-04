@@ -6,7 +6,7 @@ Ed Tom is retired. His sitting at a kitchen table, drinking something from a cup
 
 Anyway she asks him whether he had any dreams. He's reluctant to share them, but agrees after she says something like "Ed Tom, I'll be polite".
 
-Ed Tom says that he had two dreams. Both had his father in them. In the first dream, which is rather uninteresting, Ed Tom goes back to his childhood (I believe). He receives money from his father and loses it ("I think I lost it"). That's it.
+Ed Tom says that he had two dreams. Both had his father in them. In the first dream, which is rather uninteresting, Ed Tom goes back to his childhood (I believe [edit: wrongly]). He receives money from his father and loses it ("I think I lost it"). That's it.
 
 It's the second dream that makes the scene. The dream happens in the winter, at night, in nature. In the dream Ed Tom is his present age and he's riding horseback with his father. The father is younger than Ed Tom -- as remembered at the time of his death -- presumably he died fairly young. The father is carrying a horn with fire burning inside (apparently people used to do that), "about the color of the moon". He rides past Ed Tom, dissapearing into the night.
 
