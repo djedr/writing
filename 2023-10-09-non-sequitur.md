@@ -1,6 +1,6 @@
 # non sequitur
 
-table it for now and we'll see whether it makes sense in two weeks. gains were the greatest in the beginning; now I'm stagnated. these tactics were destined to fail from the start. early to bed, early to rise, makes man or a woman healthy, happy, and wise, approximately. an objection to object is akin to agreement.
+table it for now and we'll see whether it makes sense in two weeks. gains were the greatest in the beginning; now I'm stagnated. these tactics were destined to fail from the start. early to bed, early to rise, makes a man or a woman healthy, happy, and wise, approximately. an objection to object is akin to agreement.
 
 each of my acquaintances has unique characteristics. factors beyond anybody's influence caused widespread change. rarely such intense cravings have been felt by humans. your naivete is sometimes endearing. you were always idealistic and I was the opposite.
 
