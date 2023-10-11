@@ -10,7 +10,7 @@ stories are ideas, memes. memes are spread, confronted. we carry them and they d
 
 longing for what came before
 warm memories collected
-preserved in folklore
+preserved in lore
 resurrected
 
 look out an autumn window
