@@ -8,15 +8,15 @@ stories are ideas, memes. memes are spread, confronted. we carry them and they d
 
 # nostalgia
 
-longing for what came before
-warm memories collected
-preserved in lore
+longing for what came before  
+warm memories collected  
+preserved in lore  
 resurrected
 
-look out an autumn window
-stop for a second
-see what is reckoned
+look out an autumn window  
+stop for a second  
+see what is reckoned  
 here in this verse:
 
-ah, what I would give
+ah, what I would give  
 to be there and then again

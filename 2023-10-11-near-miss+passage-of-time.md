@@ -8,16 +8,16 @@ going the opposite way the meanings can be explained as: "it's a miss, but nearl
 
 # passage of time
 
-time flies like an arrow
-oft to see onself properly
+time flies like an arrow  
+oft to see onself properly  
 one must be humble like a sparrow
 
-realizing that you've missed your youth
-despair not, but learn the lesson
+realizing that you've missed your youth  
+despair not, but learn the lesson  
 now you're closer to the truth
 
-if the time you give yourself is very narrow
-you will never rest, you'll get depressed,
+if the time you give yourself is very narrow  
+you will never rest, you'll get depressed,  
 and you'll feel it in your marrow
 
 ## comment
