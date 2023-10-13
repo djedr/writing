@@ -6,6 +6,6 @@ it's all pretty wild when you think about it. whoever "you" are.
 
 # mindfulness
 
-caught myself again
-wasn't paying attention
+caught myself again  
+wasn't paying attention  
 now I am aware
