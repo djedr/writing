@@ -15,3 +15,9 @@ not every strong tree grows old
 when on a journey to get somewhere
 don't forget to enjoy yourself along the way
 because you may never get there
+
+# journey, version 2
+
+when on a journey
+enjoy the way
+because you may never arrive
