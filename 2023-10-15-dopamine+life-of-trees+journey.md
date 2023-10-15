@@ -6,18 +6,18 @@ it is crucially important that we maintain enough dopamine available in our body
 
 # lives of trees
 
-not every seed grows into a tree
-not every tree grows strong
+not every seed grows into a tree  
+not every tree grows strong  
 not every strong tree grows old
 
 # journey
 
-when on a journey to get somewhere
-don't forget to enjoy yourself along the way
+when on a journey to get somewhere  
+don't forget to enjoy yourself along the way  
 because you may never get there
 
 # journey, version 2
 
-when on a journey
-enjoy the way
+when on a journey  
+enjoy the way  
 because you may never arrive
