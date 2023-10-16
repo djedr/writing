@@ -12,7 +12,7 @@ the season of snow,
 
 then
 
-yellow flowers bloom  
+cherry flowers bloom  
 warmer and brighter each day  
 the season of birds,
 
