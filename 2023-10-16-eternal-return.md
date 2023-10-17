@@ -2,25 +2,25 @@
 
 ...golden leaves rain down  
 colder and darker each day  
-the season of wind,
+the season of wind
 
 then
 
-frozen lakes and ponds  
+lakes and rivers freeze  
 the coldest and darkest days  
-the season of snow,
+the season of snow
 
 then
 
 cherry flowers bloom  
 warmer and brighter each day  
-the season of birds,
+the season of birds
 
 then
 
-lightnings and thunders  
+lightnings split the sky  
 the warmest and brightest days  
-the season of sun,
+the season of sun
 
 then again...
 
@@ -28,26 +28,26 @@ then again...
 
 *(Finnish, Japanese, and Thai translations automated)*
 
-...liście lecą w dół  
+...złocą się liście  
 chłodniej i ciemniej co dzień  
-to pora wiatru,  
+to pora wiatru
 
 then
 
 Jäätyneet järvet ja lammet  
 kylmimmät ja pimeimmät päivät  
-lumikausi,
+lumikausi
 
 then
 
 桜の花が咲く  
 日ごとに暖かく明るく  
-鳥の季節、
+鳥の季節
 
 then
 
 ฟ้าและดาวแรงกระฉับ  
 วันที่อุ่นที่สุดและสว่างสุด  
-ฤดูแสงแดด,
+ฤดูแสงแดด
 
 then again...
