@@ -2,7 +2,7 @@
 
 I'll try to describe the ending scene from the movie "No Country For Old Men", going from memory. I've watched it many times and it's one of my favorite scenes, not just from this movie, but in general. 
 
-Ed Tom is retired. His sitting at a kitchen table, drinking something from a cup. Might've been coffee or tea. I think he's starting his day. He's wondering what should to do with his time. In the kitchen with him is a lady, likely about his age. Not sure what is the relation between them actually -- I realize that as I write this. Maybe she's his sister.
+Ed Tom is retired. He's sitting at a kitchen table, drinking something from a cup. Might've been coffee or tea. I think he's starting his day. He's wondering what to do with his time. In the kitchen with him is a lady, likely about his age. Not sure what is the relation between them actually -- I realize that as I write this. Maybe she's his sister [edit: actually she's his wife].
 
 Anyway she asks him whether he had any dreams. He's reluctant to share them, but agrees after she says something like "Ed Tom, I'll be polite".
 
