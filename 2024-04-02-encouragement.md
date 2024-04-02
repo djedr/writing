@@ -8,4 +8,4 @@ in time . .
 
 nie frasuj się  . .. .
 wszystko będzie dobrze  .. .. ..
-w końcu  , ..
+w swoim czasie  , .. ..
