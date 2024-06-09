@@ -11,7 +11,7 @@ ponder
 devoted bedbugs  
 whilst baking  
 
-# skonstruowane bzdury
+# bzdury konstrukcyjne
 
 odwrotne ośrodki biblioteczne ... ... ....  
 kreślone osłonki .... ...  
